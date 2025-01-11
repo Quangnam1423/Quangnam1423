@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @Quangnam1423
 - 👀 I’m interested in beautiful girls.
 - 🌱 I’m currently learning IT at PTIT.
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me [Tống Quang Nam](https://www.facebook.com/ReminisceWanderer/)
 - 😄 Pronouns: Cor carens.
-- ⚡ Fun fact: Fun but poor.
+- ⚡ Fun fact: Handsome, funny but poor.
 
 <!---
 Quangnam1423/Quangnam1423 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
